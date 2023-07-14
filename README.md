@@ -29,3 +29,5 @@ Future  Ready Talent Internship
 
 
 ![Screenshot (35)](https://github.com/Sravs4354/FRT/assets/113784969/80bd477c-2da2-447e-a7ed-a6181db3284d)
+![image](https://github.com/Sravs4354/FRT/assets/113784969/5a361023-9286-49d5-9685-eabc20be28c8)
+
